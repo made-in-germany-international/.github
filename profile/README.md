@@ -344,7 +344,7 @@ germany-for-future.com, germany-for-future.org, germany-go-next.com, germanyforf
 
 </div>
 
-# 🇪🇳 MADE-IN-GERMANY-INTERNATIONAL- Author & Founder: <br> Andreas Thommen (Born in 1972 in the Hanseatic city of Bremen) 
+# 🇪🇳 MADE-IN-GERMANY-INTERNATIONAL- Author & Founder: Andreas Thommen (Born in 1972, Hanseatic City of Bremen) 
 
 <div align="center">
 
