@@ -1,4 +1,4 @@
-# 🇩🇪 MADE-IN-GERMANY-INTERNATIONAL - Urheber & Gründer: <br> Andreas Thommen (Geboren 1972 in der Hansestadt Bremen) 
+# 🇩🇪 MADE-IN-GERMANY-INTERNATIONAL - Urheber, Initiator & Gründer: Andreas Thommen (Geboren 1972 in der Hansestadt Bremen) 
 
 <div align="center">
 
